@@ -23,7 +23,7 @@
 
 1. 소고기 500g
 2. 돼지고기 500g
-3. 빵가루 1컵
+3. 빵가루 1컵 (amazon 링크)[http://www.amazon.com/Kikkoman-Panko-Bread-Crumbs-Pound/dp/B0086PGTOC/ref=sr_1_1?ie=UTF8&qid=1447366893&sr=8-1&keywords=kikkoman+bread+crumbs]
 4. 양파 3컵
 5. 당근 1컵
 6. 우스터소스 반 컵
